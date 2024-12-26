@@ -1,4 +1,4 @@
-## List with some emails as spam and the urls.
+    ## List with some emails as spam and the urls.
 
 
 A recompilation of emails as spam and the urls attached in it.
@@ -31,7 +31,29 @@ A recompilation of emails as spam and the urls attached in it.
 | magoma_614@hotmail.com                    | new.express.adobe.com/webpage/2i0pUOozygBKj                       | Email mg[*****]@misena.edu.co                             |
 | fannymcaballero@hotmail.com               | failedpacificard.atwebpages.com/                                  | Email fa[*****]@gmail.com                                 |
 | anapatriciavillalba@hotmail.com           | sites.google.com/view/topupgrade/home                             | Email se[*****]@gmail.com Text [******]42                 |
-| lat@emailbelgium.com                      |                                                                   | jhernandezpa@gmail.com
-| u22218080@utp.edu.pe                      | dev-validacionprogreso2023.pantheonsite.io/
-| lucibere@hotmail.com                      | serviciospostal.info/7qXR1u                                       | co[*****]@ceus.edu.mx‎                                     |
-| hazianaa0195@gmail.com                    | 3p6ad3vh.page.link/DQbR                                           | [•••• ••• ••]62 Android phone
+| lat@emailbelgium.com                      |                                                                   | jhernandezpa@gmail.com                                    |
+| u22218080@utp.edu.pe                      | dev-validacionprogreso2023.pantheonsite.io/                       |                                                           |
+| lucibere@hotmail.com                      | serviciospostal.info/7qXR1u                                       | co[*****]@ceus.edu.mx‎                             |
+| hazianaa0195@gmail.com                    | 3p6ad3vh.page.link/DQbR                                           | [•••• ••• ••]62 Android phone                             |   
+| 20201830@student.alazhar.edu.ps           | diners-club-inicio.jimdosite.com                                  |                                                           |
+| mikrotik@connect2b.com                    |                                                                   | peggyc628@gmail.com                                       |
+| nassimchihab.kalfat@essa-tlemcen.dz       |                                                                   | peggyc628@gmail.com                                       |
+| 142.111.85.138 / 142.111.93.175           | Litecoin ltc1q66ze68gx68agsqc304rt6xw9x6k7rahnv=lxwzf             |                                                           |
+| igor@rescarunobtainable.cfd               |                                                                   |                                                           |
+| admin@batubarakab.go.id                   |                                                                   | peggyc628@gmail.com                                       |
+|                                           | http://AKJnkvMUC.zazazizi.com/8TX8ErMTA3MTQtMzg2MDAzLTU5MzkwNjEyLWYtMjA2LTQtMjIwLTE1NjAtMjQxLTc5NDMtNzk0OS0yMzgwMC1BRlNKRk55ZkMtMzJiMTA0OTM
+| info@ZenFitness.net                       | http://dmpamizlt.zazazizi.com/F21TC38538LPE5uMTA3MTQtMzg2MDAzLTU5MzkwNjEyLWYtMjA2LTQtMjIwLTE1NjAtMjQxLTc5NDMtNzk0OS0yMzgwMC1BRlNKRk55ZkMtMzJiMTA0OTM
+|                                           | https://zazazizi.com/XFRHP1G1FQoMTA3MTQtMzg2MDAzLTU5MzkwNjEyLWYtMjA2LTQtMjIwLTE1NjAtMjQxLTc5NDMtNzk0OS0yMzgwMC1BRlNKRk55ZkMtMzJiMTA0OTM
+| BL.EN.U4CSE20072@bl.students.amrita.edu   | alerta-diners-club.myportfolio.com/                               |                                                           |
+| >>instagram profile<<                     | https://jbvng.delightfuidates.com/?utm_source=0d4e17c9f3d2fb4b&s1=37032&s2=1216141&click_id=GAULL&ban=inst&j1=1               |
+| geab71630@mail.com                        | https://ecu-postkomo.top/ec                                       |                                                           |
+| notifications@ledger.mail.com             | https://hardwarewalletsupport.com                                 |                                                           |
+| ftel66111@mail.com                        | serviciopostxbllp.top/ec                                          |                                                           |
+| hczh68606@mail.com                        | serviciopostxbllp.top/ec                                          |                                                           |
+| yrxs11930@mail.com                        | serviciopostxblls.top/ec                                          |                                                           |
+| laredoute@fr.redoute.com                  | http://babieseveryday.com/cl/288_md/1/358/47/5/9085               | BtvmDCHX@fr.redoute.com - mnvD5joQ9f@strongso.net         |
+|                                           | http://babieseveryday.com/un/288_md/1/358/47/5/9085               |                                                           |
+| +639126716435                             | https://dhl.nree.za.com/track                                     |                                                           |
+| 
+
+
