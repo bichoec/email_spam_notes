@@ -99,4 +99,20 @@ A recompilation of emails as spam and the urls attached in it.
 | crmuser.recepcionista1@laureate.mx        | microsoft-outlook-inicio.glitch.me/                               |                                                           |
 | angelica.ancaten@mineduc.cl               | https://equal-carnation-manchego.glitch.me/                       |                                                           |
 | lasantacruz25A@udenar.edu.co              | <https://sites.google.com/view/cason7591/p%C3%A=1gina-principal?authuser=3D1>                                                 |
+| sibiljsfqqd3456@hotmail.com               | https://tamecarga.online/carga                                    |                                                           |
+| wm.bcrl@automotiveml.com                  | desbloquear-cuenta-email-365.glitch.me                            |                                                           |
+| heitor.santana@alunoct.santoagostinho.com.br | portalpacificard.blob.core.windows.net/ecu/index.html          |                                                           |
+| rocio.barcena@essalud.gob.pe              | https://ingresar-validacion-email.tiiny.site/                     |                                                           |
+| selojan@uce.edu.ec                        | login-premiun-365.glitch.me                                       |                                                           |
+| christian.oniate@espoch.edu.ec            | desbloquear-correo-electronico365.glitch.me                       |                                                           |
+| ccgzQBlp@pexacjozk.us                     | https://storage.googleapis.com/localbucksouf1/hreflysouf.html#?Z289MSZzMT0yMTEyOTE3JnMyPTU2MjM5NjQ5NCZzMz1BUg==               |
+| a.ouali@offsetpolyplast.com               | my-mail-25verifity.weebly.com                                     |                                                           |
+| clara.cediel@fiscalia.gov.co              | vatenest.wuaze.com                                                |                                                           |
+| pospisil.pavel@zslingua.cz                | avisofinal365.webcindario.com/                                    |                                                           |
+| jahniya.williams362@stu.vide.vi           | avisofinal365.webcindario.com                                     |                                                           |
+| soporte_adm1@osinergmin.gob.pe            | 365validacion.webcindario.com                                     |                                                           |
+| 57388@buhsd.org                           | 365validacion.webcindario.com                                     |                                                           |
+| Nivin.Khodir@ascs.sch.ae                  | 365credenciales.webcindario.com/                                  |                                                           |
+| maxim.sikela@zsraba.edu.sk                | 365credenciales.webcindario.com                                   |                                                           |
+| mailpagarnetfllxservicio@biohouseclean.com | https://zpr.io/Hn5kWpSsqh85                                      |                                                           |
 | 
