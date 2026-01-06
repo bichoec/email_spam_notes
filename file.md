@@ -115,4 +115,19 @@ A recompilation of emails as spam and the urls attached in it.
 | Nivin.Khodir@ascs.sch.ae                  | 365credenciales.webcindario.com/                                  |                                                           |
 | maxim.sikela@zsraba.edu.sk                | 365credenciales.webcindario.com                                   |                                                           |
 | mailpagarnetfllxservicio@biohouseclean.com | https://zpr.io/Hn5kWpSsqh85                                      |                                                           |
+| morganmenard@reseau.ispa.asso.fr          | habilitar365.webcindario.com/                                     |                                                           |
+| ofertas-cnt@altius-cnt-dev.cloud          | qrco.de/bfb1Mb                                                    |                                                           |
+| hunglh@jrpvietnam.com.vn                  | hotmail-activar-plan365.netlify.app                               |                                                           |
+| rhumanos@escuelaing.edu.co                | hotmail-validacion.netlify.app                                    |                                                           |
+| mbertrand@psc-lsreims.fr                  | gestion365-msft.webcindario.com                                   |                                                           |
+| info@tedcorlu.k12.tr                      | validarinformacion.42web.io                                       |                                                           |
+| javier_chelsea.12@hotmail.com             | produbanco0.webcindario.com                                       |                                                           |
+| danilas.dambrauskas@pavasariomokykla.lt   | danilas.dambrauskas@pavasariomokykla.lt                           |                                                           |
+| DE74395@miescuela.pr                      | outdoorsfoundations2trees.com                                     |                                                           |
+| vencovsky.t@sskola-trest.cz               | activarcorreo365.webcindario.com                                  |                                                           |
+| kathleen.yeates@assumptionhigh.org        | habilitar365.webcindario.com                                      |                                                           |
+| alen.foric@bgvbruck.at                    | outl00k-msn365.webcindario.com                                    |                                                           |
+| catlinoalvarez@iadmexico.mx               |                                                                   |                                                           |
+| hade_ayala@usmp.pe                        | risu.io/UBTTS                                                     |                                                           |
+| jorgee.lucas@educacion.gob.ec             | s0p0rte-365.iceiy.com/                                            |                                                           |
 | 
